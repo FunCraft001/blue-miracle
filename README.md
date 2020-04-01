@@ -1,2 +1,3 @@
 # blue-miracle
-The Miracle from the Blue Star, named Blueberry, who have been blued since born.
+
+采采卷耳，不盈倾筐。嗟我怀人，置彼周行。
